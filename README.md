@@ -1,2 +1,0 @@
-# MinkMora
-Para divertirse
